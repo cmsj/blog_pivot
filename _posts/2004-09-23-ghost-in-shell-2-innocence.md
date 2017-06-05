@@ -1,0 +1,7 @@
+Title: Ghost in the shell 2: Innocence
+Date: 2004-09-23
+Tags: Movies
+
+![Movie poster]("http://ia.imdb.com/media/imdb/01/I/48/43/48m.jpg)I'm going to start with the easy stuff. The soundtrack is excellent, the animation is superb, the 3D rendering is exquisite, the cinematography is great...technically this is a superb film. It does fall squarely into the category of extremely strange Japanese anime though. The original movie was also pretty strange, but it was possible to follow the plot and it made sense; The sequel, however, is an impenetrable fortress of strangeness on the first watch. I probably need to see it a couple more times so I can get the visuals and subtitles all taken in, especially since something was wrong with the subtitles we saw, with the odd phrase being repeated - at times it seemed like one person was having a conversation with themselves in two voices because only one mouth was moving. I'm not quite sure how much of it was the android characters not needing to move their mouths and how much of it was dodgy Internet subtitles ;-)
+I'll get this on DVD as soon as they will let me, and update this with a second impression.
+*Update:* Yeah, so the film is way way way better with decent subs, albeit fan subs (which was no bad thing, they included a few translation notes that were very useful, like explanations of opaque Japanese proverbs). Excellent film, if you like anime at all you should see it.
